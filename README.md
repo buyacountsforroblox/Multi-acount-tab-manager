@@ -202,4 +202,4 @@ Any error messages
 
 or go to the discord
 
-https://discord.gg/W7GgpGvw8u
+https://discord.gg/W7GgpGvw8u)
